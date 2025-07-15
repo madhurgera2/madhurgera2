@@ -1,6 +1,6 @@
 ![image](https://github.com/madhurgera2/madhurgera2/assets/76070586/9f00e88e-110b-4eba-8922-fa191565962d)
 
-🌟 Crafting the digital future <br>SDE @Vegrow🌱 <br>Coding my way through innovation 🚀<br>Explorer of possibilities 🔍 <br>Building tomorrow's tech today 💻
+🌟 Crafting the digital future <br>Software Engineer - Fullstack <br>Coding my way through innovation 🚀<br>Explorer of possibilities 🔍 <br>Building tomorrow's tech today 💻
 
 
 ## 🌐 Socials:
